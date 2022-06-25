@@ -1,1 +1,1 @@
-# the-beggining-of-the-way
+# the-beginning-of-the-way
